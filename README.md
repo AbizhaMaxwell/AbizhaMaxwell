@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...cyber Security
 - 🌱 I’m currently learning ...Computer science and business system
 - 💞️ I’m looking to collaborate on ...Accenture
-- 📫 How to reach me ...abizhamaxwell@gmail.com
+- 📫 How to reach me :abizhamaxwell@gmail.com
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...easily adaptable and flexible
 
